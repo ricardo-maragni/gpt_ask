@@ -1,1 +1,1 @@
-# As imagens ficarão aqui
+# Imagens
